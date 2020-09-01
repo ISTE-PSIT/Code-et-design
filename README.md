@@ -35,4 +35,4 @@ Payment No. - + 91 6388088423 (G-pay/ Phone pay only)
 
 Note:- Send your name and email-id while doing payment and your registration will be confirmed only when your payment is sucessfully done.
 
-Hurry up! Registrations begin today!
+Hurry up! Registrations begin today!!
