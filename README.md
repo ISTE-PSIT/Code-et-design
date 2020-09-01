@@ -29,8 +29,6 @@ The participants will be asked to make an application front interface (nothing t
 THE REWARDS:
 Upto 5000/- cash prizes are available
 
-Visit the link below for registration
-
 Payment Gateway
 
 Payment No. - + 91 6388088423 (G-pay/ Phone pay only)
